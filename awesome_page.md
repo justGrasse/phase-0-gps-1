@@ -1,1 +1,1 @@
-This page is NOT awesome. totally conflict!
+This page is awesome!!! No conflicts!
